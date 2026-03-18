@@ -1,0 +1,1 @@
+write a leave letter to hr manager regarding leave for 2 days due to sickness the nam of company is sr solutions,eluru.request to assign it to anothrr person the from date is 19-3-26 to 20-3-26.emp id is sr26034 the letter should be in polite way
